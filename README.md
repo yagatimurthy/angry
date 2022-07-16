@@ -1,0 +1,2 @@
+# angry
+Life is precious 
